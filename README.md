@@ -1,0 +1,1 @@
+A Decentralised Dating App for Prostitutes, uses Ether and the blockchain to allow Call Ladies get hailed, book clients, at thesame time receive their pay in their prefered currency, maintaining anonimity in the process. A transparent Dating App.
